@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+### Kinda lost on github 🥹 but that's probably because I'm new here
+### See you around~~~ or not :P
 <!--
 **shivalisavant/shivalisavant** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
